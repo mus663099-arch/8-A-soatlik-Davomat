@@ -1,0 +1,1 @@
+# 8-A-soatlik-Davomat
